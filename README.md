@@ -1,6 +1,4 @@
-Let us pray together to Jesus Christ.
-
-Let us follow Medical Medium's knowledge to heal this body and drink celery juice.
+Let us pray together to Jesus Christ and let us follow Medical Medium's knowledge to heal our bodies and drink celery juice.
 
 ---
 
